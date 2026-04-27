@@ -1,2 +1,4 @@
-# Portfolio
-My professional portfolio showcasing digital marketing skills, content creation, and page management skills
+# My Portfolio
+
+Welcome to my portfolio: 
+View my portfolio here: https://canva.link/21a87ae3s0kgfse
